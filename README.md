@@ -1,0 +1,2 @@
+# nederlands-terrorisme
+vernietigingskamp net over de erasmusbrug
